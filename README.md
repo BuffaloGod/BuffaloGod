@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BuffaloGod
+- 👀 I’m interested in ... learning everything and anything that i can!
+- 🌱 I’m currently learning ... the basics!
+- 💞️ I’m looking to collaborate on ... whateves
+- 📫 How to reach me ... idk haha
+- 😄 Pronouns: ... big daddy
+- ⚡ Fun fact: ... im a beginner
